@@ -1,6 +1,6 @@
 
 # Hi, I'm Augusto! 👋
-I am glad to have ventured into this field that I have learned, despite the daily frustrations, to enjoy spending hours coding without it being a burden and to enjoy the work. I am very grateful.
+I am happy to have discovered this amazing world that is web programming, despite the frustrations that are everyday, to spend hours, days, weeks coding without it being a burden and realy enjoy the work. I am very grateful.
 
 I also love playing the guitar and football.
 
