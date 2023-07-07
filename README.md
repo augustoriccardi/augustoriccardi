@@ -1,5 +1,5 @@
 
-# Hi, I'm Augusto! 👋
+# Hi, I'm Augusto Riccardi! 👋
 I am happy to have discovered this amazing world that is web programming, despite the frustrations that are everyday, to spend hours, days, weeks coding without it being a burden and realy enjoy the work. I am very grateful.
 
 I also love playing the guitar and football.
