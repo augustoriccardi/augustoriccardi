@@ -1,8 +1,8 @@
 
 # Hi, I'm Augusto! 👋
-I am happy to have converted to this area which I have learned, despite the frustrations that are daily, to spend hours coding without it being a burden and enjoy the work. I am very grateful.
+I am glad to have ventured into this field that I have learned, despite the daily frustrations, to enjoy spending hours coding without it being a burden and to enjoy the work. I am very grateful.
 
-I love playing guitar and football.
+I also love playing the guitar and football.
 
 
 
